@@ -16,6 +16,9 @@ Welcome!  Join us on [Discord](https://discord.gg/XTwxPXxAaA).
 
 Follow us on [Twitter](https://x.com/LifeBottleProd).
 
+Follow us on [Bluesky]
+(https://bsky.app/profile/lifebottleprod.bsky.social)
+
 Follow us on [Instagram](https://www.instagram.com/lifebottleproductions).
 
 Sub to us on [Youtube](https://www.youtube.com/@LifeBottleProd/featured).
